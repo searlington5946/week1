@@ -1,1 +1,1 @@
-# week1
+Seth Arlington
